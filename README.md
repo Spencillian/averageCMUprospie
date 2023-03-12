@@ -1,2 +1,2 @@
 # averageCMUprospie
-Want a funny charming young'in
+What a funny charming young'in
